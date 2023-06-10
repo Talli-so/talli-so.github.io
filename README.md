@@ -1,1 +1,0 @@
-# talli-so.github.io
